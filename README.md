@@ -1,19 +1,19 @@
 <div align="center">
-  👑<b>KING VAJIRA MD</b>👑</b>
+  👑<b>𝞜𝞘𝞖𝞓𝙇 𝙎𝞢𝞒</b>👑</b>
 
   
 <div align="center">
 </p>
 
 
-## [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Rockstar-ExtraBold&color=F00&lines=HELLO+IM+KING+VAJIRA+WHATSAPP+BOT)](https://git.io/typing-svg)
+## [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Rockstar-ExtraBold&color=F00&lines=HELLO+IM+𝞜𝞘𝞖𝞓𝙇 +𝙎𝞢𝞒+WHATSAPP+BOT)](https://git.io/typing-svg)
 
    <p align="center">
-<a href="https://github.com/vajirabot1">
+<a href="https://github.com/𝞜𝞘𝞖𝞓𝙇 𝙎𝞢𝞒">
     <img src="https://telegra.ph/file/09ab24679fb3a297a8905.jpg"  width="700px">
 </a>
 	   
-## [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Rockstar-ExtraBold&color=F33A6A&lines=𝐖𝐞𝐥𝐜𝐨𝐦𝐞+𝐓𝐨+𝙆𝙄𝙉𝙂╺+𝙑𝘼𝙅𝙄𝙍𝘼+-+𝗕𝗢𝗧.;𝙿𝙾𝚆𝙴𝚁𝙳+𝙱𝚈:+𝙺𝙸𝙽𝙶+𝚅𝙰𝙹𝙸𝚁𝙰+𝚃𝙴𝙰𝙼;ℂ𝕣𝕖𝕒𝕥𝕖𝕕+𝕓𝕪:+𝙒𝙈𝙍.𝙑𝘼𝙅𝙄𝙍𝘼;𝐌𝐑:+☬𝔻𝔸ℝ𝕂༒𝕍𝔸𝕁𝕀ℝ𝔸࿐;💕ඉතිං+කොහොමද🙃;😁මොකද+කරන්නෙ🌹)](https://git.io/typing-svg)
+## [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Rockstar-ExtraBold&color=F33A6A&lines=𝐖𝐞𝐥𝐜𝐨𝐦𝐞+𝐓𝐨+𝙆𝙄𝙉𝙂╺+𝙑𝘼𝙅𝙄𝙍𝘼+-+𝗕𝗢𝗧.;𝙿𝙾𝚆𝙴𝚁𝙳+𝙱𝚈:+𝞜𝞘𝞖𝞓𝙇+𝙎𝞢𝞒+𝚃𝙴𝙰𝙼;ℂ𝕣𝕖𝕒𝕥𝕖𝕕+𝕓𝕪:+𝞜𝞘𝞖𝞓𝙇 𝙎𝞢𝞒;𝐌𝐑:+☬𝔻𝔸ℝ𝕂༒𝞜𝞘𝞖𝞓𝙇 ࿐;💕🙃;😁🌹)](https://git.io/typing-svg)
 
 
 
